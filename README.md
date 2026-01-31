@@ -15,9 +15,11 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-👾 I am currently a student in my 4th year of college. 
+👾 I am currently a computer science student in my 4th year of college! 
 
 🌺 Working on a group project.
+
+🎨 Fun Fact: I love art. I can draw digitally and with pencil & paper, and I can animate. 
 
 😄 Pronouns: She/Her
 
