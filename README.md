@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 🌺 Working on a group project.
 
-🎨 Fun Fact: I love art. I can draw digitally and with pencil & paper, and I can animate. 
+🎨 Fun Fact: I love art. I can draw digitally, with pencil & paper, and I can animate. 
 
 😄 Pronouns: She/Her
 
