@@ -20,3 +20,8 @@ Here are some ideas to get you started:
 🌺 Working on a group project.
 
 😄 Pronouns: She/Her
+
+
+## Projects 💻
+
+TBA
